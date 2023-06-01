@@ -10,3 +10,4 @@
 
 [Done Josh Harnessing the Power of Articles: How Quality Content Can Drive More Leads to Your Website](https://docs.google.com/document/d/1fPQAcuUq23ushLi5-JoJRtZpGzxpqSR6w7CP77m3frk/edit)
 
+[Caleb Fisher - How to create Brand Awareness and Find a Target Market] https://wallawallauniversity-my.sharepoint.com/:w:/g/personal/caleb_fisher_wallawalla_edu/ESg0RP6_O_BBrsleNH3rjjcBmBWgSAE7Kxx4KdxayJsqsw?e=IQ2bba
